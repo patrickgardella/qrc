@@ -1,0 +1,15 @@
+**Arianism** ([[Koinē Greek]]: Ἀρειανισμός, _Areianismós_) is a [[Christological doctrine]] which rejects the traditional notion of the [[Trinity]] and considers Jesus to be a creation of God, and therefore distinct from God. It is named after its major proponent, [[Arius]] (c. AD 256–336). 
+## Details
+Arian theology holds that Jesus Christ is the [[Son of God]], who was begotten by [[God the Father]] with the difference that the [[Son of God]] did not always exist but was begotten/made before time by [[God the Father]]; therefore, [[Jesus]] was not coeternal with [[God the Father]], but nonetheless [[Jesus]] began to exist outside time.
+
+Principally, the dispute between [[Trinitarianism]] and Arianism was about two questions:
+- has the Son always existed eternally with the Father, or was the Son begotten at a certain time in the past?
+- is the Son equal to the Father or subordinate to the Father?
+## The Case of an Iota
+Arianism can come down to a single letter difference: _homoousios_ (of one substance) ([[Trinitarianism]]) and _homoiousios_ (of similar substance) (Arianism).
+## Quotes
+Arius: "If the Father begat the Son, then he who was begotten had a beginning in existence, and from this it follows there was a time when the Son was not."
+
+"Some of them say that the Son is an eructation, others that he is a production, others that he is also unbegotten. These are impieties to which we cannot listen, even though the heretics threaten us with a thousand deaths. But we say and believe and have taught, and do teach, that the Son is not unbegotten, nor in any way part of the unbegotten; and that he does not derive his subsistence from any matter; but that by his own will and counsel he has subsisted before time and before ages as perfect as God, only begotten and unchangeable, and that before he was begotten, or created, or purposed, or established, he was not. For he was not unbegotten. We are persecuted because we say that the Son has a beginning but that God is without beginning." ( Theodoret: Arius's Letter to Eusebius of Nicomedia, translated in Peters' _Heresy and Authority in Medieval Europe_, p. 41)
+## Modern Forms
+It is considered [[heresy|heretical]] by most modern mainstream branches of Christianity. It is held by a minority of modern denominations, although some of these denominations hold related doctrines such as [[Socinianism]], and some shy away from use of the term [[Arian]] due to the term's historically negative connotations. Modern mainstream denominations sometimes connected to the teaching include [[Jehovah's Witnesses]] some individual churches within the [[Churches of Christ]] (including the movement's founder [Barton W. Stone](https://en.wikipedia.org/wiki/Barton_W._Stone "Barton W. Stone")), as well as some [Hebrew Roots](https://en.wikipedia.org/wiki/Hebrew_Roots "Hebrew Roots") Christians and [Messianic Jews](https://en.wikipedia.org/wiki/Messianic_Judaism "Messianic Judaism") (although many Messianic Jews also follow Nicene Christianity).
